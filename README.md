@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lfgonzalesm
+- 🌱 I’m currently learning Data Analysis
+- 💞️ I’m looking to collaborate on Web Design
+-  You can find in Instagram @lfgonzalesm438
